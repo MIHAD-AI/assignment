@@ -1,2 +1,0 @@
-lets began life
-# assignment
